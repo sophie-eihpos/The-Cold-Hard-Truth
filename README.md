@@ -10,5 +10,14 @@ The Cold Hard Truth
 
 ![image](https://user-images.githubusercontent.com/2364337/113091490-ab0e1d80-91b1-11eb-8a77-00758c8fafaa.png)
 
+![image](https://user-images.githubusercontent.com/2364337/145749763-69cc6529-596d-44ec-9760-f59c25370d7c.png)
+
+![image](https://user-images.githubusercontent.com/2364337/145749826-978b44b0-c68f-42c7-a8a1-77a4463fb926.png)
+
+![image](https://user-images.githubusercontent.com/2364337/145750036-9c1b1af5-bd14-4710-9a02-1fd50d5c528b.png)
+
+
+
+
 
 
