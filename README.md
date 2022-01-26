@@ -23,6 +23,7 @@ The Cold Hard Truth
 
 ![image](https://user-images.githubusercontent.com/2364337/151262441-b840d510-541f-466a-b2ee-cdddcdf3c461.png)
 
+![image](https://user-images.githubusercontent.com/2364337/151263025-2c471040-6435-4c67-8a25-6f7f903514c4.png)
 
 
 
