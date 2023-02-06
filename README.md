@@ -1,6 +1,8 @@
 # The-Cold-Hard-Truth
 The Cold Hard Truth
 
+![image](https://user-images.githubusercontent.com/2364337/217067148-dd0622f9-67f4-45f0-b8f8-482bd0c04840.png)
+
 ![image](https://user-images.githubusercontent.com/2364337/151262786-4b2e5f92-8650-4b03-b5ec-218e60427e31.png)
 
 ![image](https://user-images.githubusercontent.com/2364337/151265983-6e6b9563-85eb-49b4-89f6-f819e7abee57.png)
