@@ -5,6 +5,8 @@ One of the greatest mysteries of COVID-19 is...
 
 Where did the flu go in 2020 and 2021?
 
+![image](https://user-images.githubusercontent.com/2364337/226988553-79aaf11b-de8e-4afc-b327-81e6ef1d349b.png)
+
 ![image](https://user-images.githubusercontent.com/2364337/217067148-dd0622f9-67f4-45f0-b8f8-482bd0c04840.png)
 
 ![image](https://user-images.githubusercontent.com/2364337/151262786-4b2e5f92-8650-4b03-b5ec-218e60427e31.png)
