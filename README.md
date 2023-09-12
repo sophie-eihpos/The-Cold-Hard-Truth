@@ -1,6 +1,7 @@
 # The-Cold-Hard-Truth
 The Cold Hard Truth
 
+Death cannot cure stupid
 One of the greatest mysteries of COVID-19 is...
 
 Where did the flu go in 2020 and 2021?
