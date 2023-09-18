@@ -1,11 +1,13 @@
 # The-Cold-Hard-Truth
 The Cold Hard Truth
 
+![image](https://github.com/sophie-eihpos/The-Cold-Hard-Truth/assets/2364337/5afd1e78-423f-4678-ac3b-bac056b670a6)
+
+![image](https://user-images.githubusercontent.com/2364337/226988553-79aaf11b-de8e-4afc-b327-81e6ef1d349b.png)
+
 One of the greatest mysteries of COVID-19 is...
 
 Where did the flu go in 2020 and 2021?
-
-![image](https://user-images.githubusercontent.com/2364337/226988553-79aaf11b-de8e-4afc-b327-81e6ef1d349b.png)
 
 ![image](https://user-images.githubusercontent.com/2364337/217067148-dd0622f9-67f4-45f0-b8f8-482bd0c04840.png)
 
