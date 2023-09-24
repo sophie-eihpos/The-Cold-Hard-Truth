@@ -1,6 +1,11 @@
 # The-Cold-Hard-Truth
 The Cold Hard Truth
 
+Imagine a vaccine so safe, you have to be threatened to take it.
+For a disease so deadly, you have to be tested to know you have it.
+
+![image](https://github.com/sophie-eihpos/The-Cold-Hard-Truth/assets/2364337/50dd1e93-0422-4516-b839-c833e8e91c08)
+
 ![image](https://github.com/sophie-eihpos/The-Cold-Hard-Truth/assets/2364337/7fa852f3-9692-4eee-875f-03d4e1c2271d)
 
 💀 mY mASk pRoTeCTS UkRaInIaN PrEgNaNt MEn fRoM CLImaTE ChanGe 💀
