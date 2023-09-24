@@ -1,6 +1,10 @@
 # The-Cold-Hard-Truth
 The Cold Hard Truth
 
+💀 mY mASk pRoTeCTS UkRaInIaN PrEgNaNt MEn fRoM CLImaTE ChanGe 💀
+
+![image](https://github.com/sophie-eihpos/The-Cold-Hard-Truth/assets/2364337/d449aaf6-9720-48b8-8167-e5b417edea76)
+
 ![image](https://github.com/sophie-eihpos/The-Cold-Hard-Truth/assets/2364337/5afd1e78-423f-4678-ac3b-bac056b670a6)
 
 ![image](https://user-images.githubusercontent.com/2364337/226988553-79aaf11b-de8e-4afc-b327-81e6ef1d349b.png)
