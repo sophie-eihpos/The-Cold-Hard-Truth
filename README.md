@@ -1,6 +1,9 @@
 # The-Cold-Hard-Truth
 The Cold Hard Truth
 
+There's stupid and then there's this:
+![image](https://github.com/sophie-eihpos/The-Cold-Hard-Truth/assets/2364337/28e6b2da-56a0-4047-b86c-608aa096d203)
+
 Imagine a vaccine so safe, you have to be threatened to take it.
 For a disease so deadly, you have to be tested to know you have it.
 
